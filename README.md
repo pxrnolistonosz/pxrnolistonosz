@@ -1,12 +1,36 @@
-[<img src="https://p84.cooltext.com/Rendered/Cool%20Text%20-%20patreon%20489666450931147.png">](https://www.patreon.com/c/pornolistonosz)
-[<img src="https://p84.cooltext.com/Rendered/Cool%20Text%20-%20atabook%20489666436318230.png">](https://pornolistonosz.atabook.org)
-[<img src="https://p82.cooltext.com/Rendered/Cool%20Text%20-%20pronouns%20489666421453716.png">](https://en.pronouns.page/@pornolistonosz)
-[<img src="https://p84.cooltext.com/Rendered/Cool%20Text%20-%20twltter%20489666403843962.png">](https://www.x.com/@pornolistonosz)
-[<img src="https://p81.cooltext.com/Rendered/Cool%20Text%20-%20strawpage%20489666377697098.png">](https://pornolistonosz.straw.page)
+<p align="center">
+  <img src="https://64.media.tumblr.com/5c6b8e4808eda642254c7b59e4c84c01/9d28fbe89343203c-10/s2048x3072/d783d2837f5e02dc7b2e99ca6d6a23e73983d2d6.pnj" width="800">
+</p>
 
-<img src="https://media.discordapp.net/attachments/1395887698144661616/1406999187014291687/GTP1x2f.png?ex=68b107da&is=68afb65a&hm=73ba68fd0714e6bd327c95485acde7bbb6f5feaafadcbea66dff2b0bf7c81cc8&=&format=webp&quality=lossless&width=1107&height=831">
+                                                                                                                                       ![](https://komarev.com/ghpvc/?username=pxrnolistonosz&color=grey&style=plastic&label=☠︎︎)
+    
+<p align="center">
+<img src="https://s1.ezgif.com/tmp/ezgif-163a16c993a986.webp" width="800">
+</p> 
 
-![](https://komarev.com/ghpvc/?username=pxrnolistonosz&color=lightgrey)
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dvd665mpswcjhk7ituhclzjwcq&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&bar_color=a8a8a8&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<p align="center">
+  
 
-<img src="https://100films.co.uk/wp-content/uploads/2016/04/fight-club-banner.jpg">
+                       [atabook](https://pornolistonosz.atabook.org)               [pronouns](https://en.pronouns.page/@pornolistonosz)                                [twitter](https://x.com/@pornolistonosz)
+
+                             [strawpage](https://pornolistonosz.straw.page)                            [patreon](https://www.patreon.com/c/pornolistonosz)
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/638450150b2ce50a5024c160643d319f/65964bf138f6b00c-fa/s2048x3072/c3bcee6334a1e95cc9d20274b498924896e4fd46.pnj">
+</p>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dvd665mpswcjhk7ituhclzjwcq&cover_image=true&theme=spotify-embed&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=3e4860&bar_color_cover=false&mode=dark">
+  </a>
+</p>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/afd02e1ff5043a6c1651bdb69dd534e0/65964bf138f6b00c-8c/s2048x3072/85592a7640b0f10cbdf209b7369647daedaf24ba.pnj">
+</p>
+
+                             
+                         
+
+  
+
