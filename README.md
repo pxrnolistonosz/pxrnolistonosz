@@ -3,10 +3,14 @@
 </p>
 
                                                                                                                                        ![](https://komarev.com/ghpvc/?username=pxrnolistonosz&color=grey&style=plastic&label=☠︎︎)
-    
-<p align="center">
-<img src="https://s1.ezgif.com/tmp/ezgif-163a16c993a986.webp" width="800">
-</p> 
+         
+                                                                                                                                     
+                                                                                                                                                                                                                   ![giphy](https://github.com/user-attachments/assets/e549a3fa-3729-4ede-ab03-633f87c56449) 
+
+
+
+
+
 
 <p align="center">
   
