@@ -5,7 +5,7 @@
                                                                                                                                        ![](https://komarev.com/ghpvc/?username=pxrnolistonosz&color=grey&style=plastic&label=☠︎︎)
          
                                                                                                                                      
-                                                                                                                                                                                                   ![giphy](https://github.com/user-attachments/assets/e549a3fa-3729-4ede-ab03-633f87c56449) 
+                                                                                                                                                                                                  ![giphy](https://github.com/user-attachments/assets/e549a3fa-3729-4ede-ab03-633f87c56449) 
 
 
 
