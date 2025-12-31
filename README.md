@@ -6,7 +6,7 @@
          
                                                                                                                                      
                                                                                                                                                                                              
-                                               ![pobrany+plik](https://github.com/user-attachments/assets/045314ec-3438-4ccb-8185-8b69b735ae6c)
+                                           ![pobrany+plik](https://github.com/user-attachments/assets/045314ec-3438-4ccb-8185-8b69b735ae6c)
 
 
 
