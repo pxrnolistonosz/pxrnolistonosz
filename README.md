@@ -1,12 +1,18 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/4b7d56533eda20eaea74b4734f3a01f6/136f59329199be26-cb/s1280x1920/cc21821ea306b13825ffb622783aec2e3fc47963.pnj" width="800">
+  <img src="https://64.media.tumblr.com/5ca8825fca9416ed299efb17c31f975b/ef2d1c152b7664b8-33/s1280x1920/347202fd9c31016034cb4a2ebac5ed0c27f3c4a9.pnj" width="800">
 </p>
 
                                                                                                                                        ![](https://komarev.com/ghpvc/?username=pxrnolistonosz&color=grey&style=plastic&label=☠︎︎)
          
-                                                                                                                                     
-                                                                                                                                                                                             
-                                           ![pobrany+plik](https://github.com/user-attachments/assets/045314ec-3438-4ccb-8185-8b69b735ae6c)
+                                                                                                                                                                                         
+                         
+
+
+
+         ![gifgit (1)](https://github.com/user-attachments/assets/18ae19da-a37c-4b0c-813f-aa6d4d632b49)
+
+
+
 
 
 
@@ -19,7 +25,7 @@
                              [strawpage](https://pornolistonosz.straw.page)                            [patreon](https://www.patreon.com/c/pornolistonosz)
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/8fe5b2dba98f706feb83860774eea1f0/07bc71ff44295696-e1/s2048x3072/6893f1912631e1c771f7a598652fcdc584086294.pnj">
+  <img src="https://64.media.tumblr.com/005078cd8a6ff4f9e8331fdb527eb6d6/c5f5f700a6ce355f-9e/s1280x1920/8c7401d3bd7eea46b448dc3715c195a41143876b.pnj">
 </p>
 
 <p align="center">
@@ -29,7 +35,7 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/e1a12ff512261f4a8c13c0233eb5c0b3/0076baddc1efebbd-e0/s2048x3072/255c0b873fd4d7f66a2c59568644d67b2a1787d3.pnj">
+  <img src="https://64.media.tumblr.com/801a08572c67f2510c1770886aa6ca16/24a1316a9dd0c2cc-ee/s640x960/2d7c50d8c9f7d6787a3f70c614c694eebb7589eb.pnj" width="800">
 </p>
 
                              
