@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/5ca8825fca9416ed299efb17c31f975b/ef2d1c152b7664b8-33/s1280x1920/347202fd9c31016034cb4a2ebac5ed0c27f3c4a9.pnj" width="800">
+  <img src="https://64.media.tumblr.com/dd74cfd3b2dcb4a54c78cfca74a21b64/4b3a49b06bc28f48-2b/s2048x3072/435db26cd528027b558ee5f702f063994a2bd760.pnj" width="800">
 </p>
 
                                                                                                                                        ![](https://komarev.com/ghpvc/?username=pxrnolistonosz&color=grey&style=plastic&label=☠︎︎)
@@ -9,7 +9,8 @@
 
 
 
-               ![gifgit (2)](https://github.com/user-attachments/assets/2137eb2d-0b89-47f7-9c3c-44c62e4b8cdb)
+               
+     ![tumblr_d661325ea17af9c02e02cf7987eaba40_c8337800_540](https://github.com/user-attachments/assets/d0f7db63-474e-46af-a0f7-5eaa8d574668)
 
 
 
@@ -26,7 +27,7 @@
                              [strawpage](https://pornolistonosz.straw.page)                            [patreon](https://www.patreon.com/c/pornolistonosz)
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/005078cd8a6ff4f9e8331fdb527eb6d6/c5f5f700a6ce355f-9e/s1280x1920/8c7401d3bd7eea46b448dc3715c195a41143876b.pnj">
+  <img src="https://64.media.tumblr.com/4b7d56533eda20eaea74b4734f3a01f6/136f59329199be26-cb/s1280x1920/cc21821ea306b13825ffb622783aec2e3fc47963.pnj">
 </p>
 
 <p align="center">
@@ -36,7 +37,7 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/801a08572c67f2510c1770886aa6ca16/24a1316a9dd0c2cc-ee/s640x960/2d7c50d8c9f7d6787a3f70c614c694eebb7589eb.pnj" width="800">
+  <img src="https://64.media.tumblr.com/cacc8b7e3e7473a673ff6a10fef19786/2d55573f5c62ed62-04/s1280x1920/cafd0c1b7d215306768b994f6a77b327d665a41b.pnj" width="800">
 </p>
 
                              
