@@ -22,7 +22,7 @@
 <p align="center">
   
 
-                       [atabook](https://pornolistonosz.atabook.org)               [pronouns](https://en.pronouns.page/@pornolistonosz)                                [twitter](https://x.com/@pornolistonosz)
+                       [atabook](https://pornolistonosz.atabook.org)               [pronouns](https://en.pronouns.page/@pornolistonosz)                                [guns.lol](https://guns.lol/pxrnolistonosz)
 
                              [strawpage](https://pornolistonosz.straw.page)                            [patreon](https://www.patreon.com/c/pornolistonosz)
 
